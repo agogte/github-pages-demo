@@ -1,3 +1,0 @@
-Hello! 
-
-Advait was here.
